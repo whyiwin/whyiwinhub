@@ -1,2 +1,2 @@
-# whyiwinhub
-Whyiwin Hub
+# Whyiwin Hub
+Free for Gamer
